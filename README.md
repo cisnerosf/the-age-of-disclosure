@@ -1,0 +1,1 @@
+![The Age of Disclosure](cover.jpg)
