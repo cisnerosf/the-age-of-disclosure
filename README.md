@@ -1,4 +1,4 @@
-Guess Who's Next...
+How worthy is your nation — will $1 trillion be enough to buy its soul?
 
 https://edition.cnn.com/2025/11/24/media/x-features-maga-accounts
 
