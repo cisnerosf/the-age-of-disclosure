@@ -6,7 +6,8 @@
 2. Nicolás Maduro - Venezuela
     - https://www.latimes.com/world-nation/story/2025-11-24/u-s-set-to-label-maduro-tied-cartel-de-los-soles-as-terror-organization
     - https://www.latintimes.com/mexican-authorities-reveal-new-details-mayors-killing-after-arrest-alleged-jalisco-cartel-591863
-3. to-do
+3. Viktor Mihály Orbán - Hungary
+    - Come on — everybody knew that already, right?
 4. to-do
 5. to-do
 6. to-do
