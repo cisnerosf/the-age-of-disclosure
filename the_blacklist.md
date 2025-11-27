@@ -1,6 +1,8 @@
 ## Russian spies and their addresses
 
 1. Central Intelligence Agency (CIA) - Virginia/US
+    - https://www.washingtonpost.com/dc-md-va/2025/11/26/national-guard-shooting-downtown-washington/
+    - https://abcnews.go.com/US/visual-timeline-charlie-kirk-shooting-unfolded/story?id=125478526
     - https://edition.cnn.com/us/live-news/unitedhealthcare-brian-thompson-death-12-04-24/
     - https://abcnews.go.com/US/4-midtown-manhattan-shooting-victims/story?id=124161500
 2. Nicolás Maduro - Venezuela
