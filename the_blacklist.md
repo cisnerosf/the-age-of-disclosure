@@ -10,7 +10,9 @@
     - https://www.latintimes.com/mexican-authorities-reveal-new-details-mayors-killing-after-arrest-alleged-jalisco-cartel-591863
 3. Viktor Mihály Orbán - Hungary
     - Come on — everybody knew that already, right?
-4. to-do
+4. Laura Elizabeth Loomer - US
+    - https://www.lemonde.fr/en/international/article/2025/04/05/laura-loomer-the-maga-influencer-behind-the-firing-of-the-nsa-director_6739857_4.html
+    - https://apnews.com/article/trump-waltz-laura-loomer-national-security-council-959b718b04b240c5c8ba3736b4d8aa62
 5. to-do
 6. to-do
 7. to-do
