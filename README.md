@@ -1,7 +1,6 @@
-The shadows of history loom large, warning that the catastrophic consequences of hubris and ignorance will inevitably unfold, as the reckless and the doomed ask: "What could possibly go wrong?"
+# Coincidence or Sabotage?
+
+https://g1.globo.com/sp/piracicaba-regiao/noticia/2026/01/22/surto-apos-consumo-de-agua-e-alimentos-em-empresa-da-hyundai-o-que-se-sabe-e-o-que-falta-saber.ghtml
 
 
-https://www.scworld.com/brief/germany-drafts-law-to-expand-intelligence-surveillance
-
-https://news.risky.biz/risky-bulletin-germany-seeks-more-hacking-and-surveillance-powers-for-its-intel-service/
-
+https://www.ibtimes.co.uk/amazon-warehouse-tb-outbreak-hundreds-uk-workers-screened-deadly-infection-1772591
