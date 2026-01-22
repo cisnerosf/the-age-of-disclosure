@@ -1,3 +1,3 @@
-# Are you a doer or a talker?
+Hey Luci, remember the date **Friday, April 13, 2029**?
 
-https://youtu.be/nA_JEpNrQVs
+![Coming up](99942.jpeg)
