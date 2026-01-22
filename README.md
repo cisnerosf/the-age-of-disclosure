@@ -1,3 +1,7 @@
-Hey Luci, remember the date **Friday, April 13, 2029**?
+The shadows of history loom large, warning that the catastrophic consequences of hubris and ignorance will inevitably unfold, as the reckless and the doomed ask: "What could possibly go wrong?"
 
-![Coming up](99942.jpeg)
+
+https://www.scworld.com/brief/germany-drafts-law-to-expand-intelligence-surveillance
+
+https://news.risky.biz/risky-bulletin-germany-seeks-more-hacking-and-surveillance-powers-for-its-intel-service/
+
